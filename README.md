@@ -1,3 +1,4 @@
+![Banner](https://predaxia.com/wp-content/uploads/2026/04/If-youre-filing-for-divorce-assume-your-devices-are-compromised.jpg)
 # Digital Privacy Checklist Before Filing for Divorce
 
 Your spouse may already have access to your messages, your location, and your financial accounts. This checklist exists because most people find out too late.
